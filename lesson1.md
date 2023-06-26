@@ -6,7 +6,7 @@ Ahojte! Ja som lektorka Julia a v našej prvej lekcii sa pozrieme na dôvody, pr
 - Akademické ciele: mnoho vysokých škôl a univerzít vo svete ponúka vzdelávacie programy v angličtine
 - Prístup k informáciám: veľké množstvo informácií je dostupných v angličtine. S angličtinou ako druhým jazykom majú študenti možnosť čítať knihy, články, vedecké štúdie a iné
 
-#Po dosiahnutí urovňa angličtiny A1 (Úplný začiatočník) budete môcť používať nasledujúce zručnosti:
+Po dosiahnutí urovňa angličtiny A1 (Úplný začiatočník) budete môcť používať nasledujúce zručnosti:
 
 - Porozumenie: dokážete porozumieť a používať veľmi často používané každodenné výrazy, ako aj jednoduché frázy na uspokojenie okamžitých potrieb.
 - Hovorenie: budete schopní hovoriť o svojom okolí a poskytovať jednoduché informácie o sebe, ako je meno, vek, národnosť atď. Dokazeš sa opýtať na základné veci, a budeš vedieť na ne jednoducho odpovedať
