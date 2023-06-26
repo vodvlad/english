@@ -10,7 +10,8 @@ This is called the Alphabet, which we never must forget.
 
 Prekladá sa to ako: Toto sa volá abeceda, na ktorú nikdy nesmieme zabudnúť.
 
-![telegram-cloud-photo-size-2-5246945075332762334-y](https://github.com/vodvlad/english/assets/20659925/ca37d83f-328a-4017-bc18-4c6d32126fa5)
+![telegram-cloud-photo-size-2-5246945075332762353-x](https://github.com/vodvlad/english/assets/20659925/f9b2e15c-c0af-44d1-a51c-2beaec23ab50)
+
 
 Dalej sme sa naucime ako po anglicky počítať do 12. 
 
