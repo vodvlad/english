@@ -12,7 +12,7 @@ This is called the Alphabet, which we never must forget.
 
 Prekladá sa to ako: Toto sa volá abeceda, na ktorú nikdy nesmieme zabudnúť.
 
-![Untitled](Lekcia2/Lekcia 2 - Abeceda a Čísla e1398a90ff3240f8a42826ef089c1b3d/Untitled.png)
+![telegram-cloud-photo-size-2-5246945075332762334-y](https://github.com/vodvlad/english/assets/20659925/ca37d83f-328a-4017-bc18-4c6d32126fa5)
 
 Dalej sme sa naucime ako po anglicky počítať do 12. 
 
